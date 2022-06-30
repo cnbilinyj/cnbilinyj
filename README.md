@@ -1,4 +1,4 @@
-- 👋 Hi, I’m [@cnbilinyj](github.com/cnbilinyj)
+- 👋 Hi, I’m [@cnbilinyj](https://github.com/cnbilinyj)
 - 📫 You can contact me through my email address (wjrbilibilinyj@163.com or 1716464831@qq.com).
 - My website address is: [bilibili-hhhnyj.rth7.com](bilibili-hhhnyj.rth7.com)
 
